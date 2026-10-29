@@ -1,0 +1,1 @@
+Your associate degree is a journey with a lot of small choices. Every door leads to a maze, and every route ends somewhere real. There are no signs, so you won’t know where you’re headed until you get there. That’s often how careers actually work
